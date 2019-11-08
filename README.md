@@ -1,2 +1,0 @@
-# ConnerPittaway.github.io
-Portfolio
